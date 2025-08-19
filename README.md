@@ -1,3 +1,3 @@
 # Nuvama_assignment
+<img width="1000" height="800" alt="image" src="https://github.com/user-attachments/assets/0c5b27f0-d815-47a5-8823-359a2c0bc37d" />
 
-<img width="1919" height="1079" alt="image" src="https://github.com/user-attachments/assets/453b0b21-b191-45ef-93b1-06b37043f84b" />
